@@ -1,4 +1,4 @@
-## Hi there 👋
+## Numpang lewat aja👋😄
 
 <!--
 **Afdhol28/afdhol28** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
